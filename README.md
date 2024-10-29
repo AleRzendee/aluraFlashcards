@@ -1,1 +1,1 @@
-## link to view: https://www.dentistapinda.com.br/
+## link to view: https://alerzendee.github.io/aluraFlashcards/
